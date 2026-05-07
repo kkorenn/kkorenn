@@ -1,1 +1,1 @@
-my readme on my profile?
+im koren and i love ai (claude user over here)
